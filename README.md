@@ -1,1 +1,1 @@
-# Pratik-Bandgar
+# Prateek-Bandgar
